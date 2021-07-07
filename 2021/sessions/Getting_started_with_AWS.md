@@ -1,6 +1,7 @@
 <h1>Path for AWS Certifications from AWS Sr. Technical Trainer - Saurabh Bhattacharya</h1>
 
 
+[![Watch the video](https://img.youtube.com/vi/rWGeOvFc_J0/maxresdefault.jpg)](https://www.youtube.com/watch?v=rWGeOvFc_J0)
 
 Were you aiming to start AWS Certifications Journey?
 Are you confused about where to start or looking for the next certification that is best for your career?
@@ -56,6 +57,3 @@ Request your free practice exam:
 𝐖𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞 𝐚 𝐦𝐞𝐦𝐛𝐞𝐫?
 𝐅𝐨𝐥𝐥𝐨𝐰 & 𝐂𝐥𝐢𝐜𝐤 𝐨𝐧 𝐑𝐞𝐠𝐢𝐬𝐭𝐞𝐫: [https://lnkd.in/dNcQKZU](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbmdjai1kY2tSQWxGNFZ6QVZwOEtOQlRqZ1RLZ3xBQ3Jtc0tsdjVkN1lnb0RkSmI1QllVd2xmWGtTalFvNnZpbnA1Um91eHpFZXlwTkhLa2lQYmtBMGxmRGZhLUZVOC1sejRJaWI5RUxfYzdhV3dsU19XRUJuZElmM1RKMG9zVjRKS3QwNTVPNlJhdkVBN1cwMFNUVQ&q=https%3A%2F%2Flnkd.in%2FdNcQKZU)
 𝐎𝐭𝐡𝐞𝐫 𝐒𝐨𝐜𝐢𝐚𝐥𝐬: [https://www.awsugjaipur.tech/joinus](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqa3dxZWFnbm5JMWZ5bjJsOWxGRXR3cEhUc1VpQXxBQ3Jtc0ttOUQwakZFc1N3S25ZSTB2RWNFYzZiS2c2SXAtRmh5VW1Pay11emtfWlZYNElvYWtCZ2JKbWdDb3NkbzZIZVhCbmJlRGNPZW1hamJ6dndyRVBkNGdsbzJpdXprc1BzOG1yMHRtYkljOWpEWlhFSW5ydw&q=https%3A%2F%2Fwww.awsugjaipur.tech%2Fjoinus)
-
-
-[![Watch the video](https://img.youtube.com/vi/rWGeOvFc_J0/maxresdefault.jpg)](https://www.youtube.com/watch?v=rWGeOvFc_J0)
