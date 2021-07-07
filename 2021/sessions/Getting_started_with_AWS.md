@@ -58,4 +58,4 @@ Request your free practice exam:
 𝐎𝐭𝐡𝐞𝐫 𝐒𝐨𝐜𝐢𝐚𝐥𝐬: [https://www.awsugjaipur.tech/joinus](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqa3dxZWFnbm5JMWZ5bjJsOWxGRXR3cEhUc1VpQXxBQ3Jtc0ttOUQwakZFc1N3S25ZSTB2RWNFYzZiS2c2SXAtRmh5VW1Pay11emtfWlZYNElvYWtCZ2JKbWdDb3NkbzZIZVhCbmJlRGNPZW1hamJ6dndyRVBkNGdsbzJpdXprc1BzOG1yMHRtYkljOWpEWlhFSW5ydw&q=https%3A%2F%2Fwww.awsugjaipur.tech%2Fjoinus)
 
 
-[![Watch the video](https://img.youtube.com/vi/rWGeOvFc_J0/maxresdefault.jpg)](https://youtu.be/T-D1KVIuvjA)
+[![Watch the video](https://img.youtube.com/vi/rWGeOvFc_J0/maxresdefault.jpg)](https://www.youtube.com/watch?v=rWGeOvFc_J0)
